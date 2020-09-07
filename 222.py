@@ -1,6 +1,0 @@
-jdiwoajdoiajkcmlcve
-dowkjaodhwajkndkaw
-oijdwa
-djwa
-dwadaw
-fasd
